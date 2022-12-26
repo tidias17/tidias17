@@ -10,6 +10,6 @@ In Frontend, I try to deliver unique experiences to customers and good usability
 - I love spending time in a Super Mario Bross match :video_game: ;
 
 ## How can you contact me:
-- [Portifólio](https://thiagoalmeida.com.br);
+- [Portifólio](https://thialmeida.com.br);
 - [Linkedin](https://www.linkedin.com/in/thiagoalm/);
 - [Instagram](https://www.instagram.com/tidias17/).
